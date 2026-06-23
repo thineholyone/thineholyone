@@ -1,5 +1,5 @@
 
-## Hello!!
+## Hello!!  Romano #1 genderfluid freak!!  C+H enc, I love making new friends!!! 
 <img width="736" height="414" alt="eb443d9d7b078196f9ea166630d319e0" src="https://github.com/user-attachments/assets/72e4104e-5182-40ad-91ca-fd2a0ded1301" />
 
                                                This is my main page, major wip <33
