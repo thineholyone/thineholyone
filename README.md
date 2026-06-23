@@ -1,6 +1,7 @@
 ## Hello fat wip 
 <img width="736" height="414" alt="eb443d9d7b078196f9ea166630d319e0" src="https://github.com/user-attachments/assets/72e4104e-5182-40ad-91ca-fd2a0ded1301" />
-https://cdn.discordapp.com/attachments/1421844363440296022/1518797698361458738/Tumblr_l_23798694645868.gif?ex=6a3b3a15&is=6a39e895&hm=f067302cc5253c8cf35c9d481035728868a05c0d0bf9b4bbd7711ea611a6ef57&
+<img width="250" height="33" alt="Tumblr_l_23877326642713" src="https://github.com/user-attachments/assets/6d3d7a34-f83f-4106-bc82-8b04151c2a95" />
+
 <!--
 **thineholyone/thineholyone** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
