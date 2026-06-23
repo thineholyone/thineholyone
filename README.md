@@ -7,7 +7,7 @@
 <img width="250" height="33" alt="Tumblr_l_23877326642713" src="https://github.com/user-attachments/assets/6d3d7a34-f83f-4106-bc82-8b04151c2a95" />
 
 
-https://camo.githubusercontent.com/
+
 <!--
 **thineholyone/thineholyone** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
